@@ -11,3 +11,5 @@ Linkok200/Linkok200 is a ✨ special ✨ repository because its `README.md` (thi
 You can click the Preview link to take a look at your changes.
 --->
 priyanshuyadavlinkok200 <dc>
+README.MD 
+HY SIR PLEASE FIND THE ATTACHED FILE IS SCANNED IMAGE IN PDF FORMATS priyanshuyadavlinkok200
